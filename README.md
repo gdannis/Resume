@@ -36,12 +36,14 @@ gdannis@gmail.com <br>
 #####Bachelor of Arts, Sociology
 #####Minor, Enviornmental Studies<br><br><br>
 ##Activities and Volunteer Work
-• Lifeline Counselor, The Trevor Project, 2014-2015<br>
-• LMU Senior Leadership Council, 2012-2013<br>
-• Student Athlete Mentor, 2012-2013 <br>
-• Belles Community Service Organization <br>
-• NCAA Division I Women's Crew Team <br>
-• LMU Gender-Sexuality Alliance <br>
+• Lifeline Counselor, The Trevor Project, 2014-2015 <br>
+• Senior Leadership Council, LMU, 2012-2013 <br>
+• Student Athlete Mentor, LMU, 2012-2013 <br>
+• Summer Undergraduate Research Program, LMU, 2012-2013 <br>
+• RAINS Research Assistant - Sociology, LMU, 2011-2013 <br>
+• Belles Community Service Organization, LMU, 2009-2013 <br>
+• NCAA Division I Women's Crew Team, LMU, 2009-2013 <br>
+• Gender-Sexuality Alliance, LMU, 2009-2013 <br>
 ##Honors & Awards
 • Alpha Kappa Delta Sociology Honors Society 2009 - Present <br>
 • West Coas Conference Women's Rowing All-Academic Team Honorable Mention, 2013<br>
