@@ -7,10 +7,10 @@ gdannis@gmail.com <br>
 ####<b>Digital Crisis Services Coordinator</b>
 #####The Trevor Project
 ######June 2015 - Present
+<br>• Oversee volunteer counselors on iCarol and other online databases to ensure consistency of protocol and proper handling of visitors in digital setting<br>
+• Communicate with police and child protective agencies to initiate welfare checks and mandated child abusereports as required by law
 • Manage volunteers, including scheduling, responding to questions and requests and acting as primary source of administrative advisement and guidance
-<br>• Oversee usage of iCarol and other online databases to ensure consistency of protocol and proper handling of visitors in digital setting 
-<br>• Assist with training and ongoing education via interviews with prospective volunteers, selection of candidates for classes, facilitation of webinar lectures and other meetings
-<br>• Complete special projects as assigned, including monthly newsletter to volunteers<br><br>
+<br>• Assist with training and ongoing education via interviews with prospective volunteers, selection of candidates for classes, facilitation of webinar lectures and other meetings<br><br>
 ####<b>Communications and Outreach Manager</b>
 #####Angel Flight West
 ######February 2015 - June 2015
