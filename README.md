@@ -24,7 +24,7 @@ gdannis@gmail.com <br>
 • Coordinated volunteer medical flight logistics via document management, data entry and case management
 <br>• Developed branded content and organization voice on social media accounts to drive awareness, engagement and traffic
 <br>• Represented organization at volunteer recruitment events, social work & health conferences, and community meetings
-<br>•  Analyzed coordination processes and restructured when necessary, via testing and updating data entry processes and online workflow procedures<br><br>
+<br>•  Analyzed coordination processes and restructured to create efficient practices, via testing and updating data entry processes and online workflow procedures<br><br>
 ####<b>Center for Juvenile Law and Policy Intern</b>
 #####Loyola Law School
 ######January 2013 - April 2013
