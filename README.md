@@ -16,15 +16,15 @@ gdannis@gmail.com <br>
 ######February 2015 - June 2015
 • Managed marketing, public relations, social media accounts and related content
 <br>• Facilitated operations of volunteer leadership team including recruitment, training and coordinating in-services, webinars and in-person meetings 
-<br>•  Coordinated outreach efforts including exhibits at health care and social service conferences, in-service presentations to hospitals and other agencies, and building relationships with pilot organizations 
+<br>•  Spearheaded outreach efforts including exhibits at health care and social service conferences, in-service presentations to hospitals and other agencies, and building relationships with pilot organizations 
 <br>•  Managed 2 Marketing/Communications Undergraduate Interns<br><br>
 ####<b>Mission Operations Coordinator</b>
 #####Angel Flight West
 ######June 2013 - February 2015
 • Coordinated volunteer medical flight logistics via document management, data entry and case management
-<br>• Managed social media accounts and developed branded content to drive awareness, engagement and traffic
+<br>• Developed branded content and organization voice on social media accounts to drive awareness, engagement and traffic
 <br>• Represented organization at volunteer recruitment events, social work & health conferences, and community meetings
-<br>•  Hired full time upon graduation after interning Spring/Summer 2011 and Summer 2012<br><br>
+<br>•  Analyzed coordination processes and restructured when necessary, via testing and updating data entry processes and online workflow procedures<br><br>
 ####<b>Center for Juvenile Law and Policy Intern</b>
 #####Loyola Law School
 ######January 2013 - April 2013
